@@ -4,7 +4,7 @@
 # ⌕ ;   ،  ꜝ  ๑  rentry ╱ graphics ! ⏖
 
 [rentry.resources] 
-[f2u.graphics]
+[f2u.graphics](https://rentry.co/flowarhazard)
 
 
 <img width="2048" height="2048" alt="17619575531924818798294580754867" src="https://github.com/user-attachments/assets/2715fd30-3d37-4cf6-8c97-09502eb55939" />

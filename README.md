@@ -1,10 +1,13 @@
 <img width="1280" height="256" alt="17619575946642299355542492767865" src="https://github.com/user-attachments/assets/519229f4-34d4-41c5-8b0f-d4a3ca7e2048" />
 
 
-# ⌕ ;   ،  ꜝ  ๑  rentry ╱ graphics ! ⏖
+# ⌕ ;   ،  ꜝ  ๑  commissions ╱ graphics ! ⏖
 
-♰⠀✦`unfinished
-[rentry.resources] 
+⌕ ﹔ custom graphics 1-7  ᵒᵘ  discord profile  ،  ꜝ  ๑  rentry╱ur choice of website ⏖
+
+⟢  ˚  ᛝ tier 1  ˖◝ ⌑  tier 2  𓏵  tier 3   ≀  .  ⟡ ᛝ  ՟
+
+➷  𐔌 tier 1  ⋆  1 hour = 1 month  ⟡ 3 hours = 3 months 𓏴 1-2 days = 6 months  ᵕᵕ  [strawpage](https://sunnygummycomms.straw.page)  ʬʬʬ   Ꜣ
 
 ♰⠀✦` unfinished
 [f2u.graphics](https://rentry.co/flowarhazard)

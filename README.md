@@ -5,6 +5,9 @@
 
 ![](https://komarev.com/ghpvc/?username=CANNIBALISTIC-HEARTZ&label=ultimate+lucky+student&color=03ffc0&abbreviated=true)
 
+
+`ᛝ ⟡ ᐟ payment is in pt supporter ꒱ 𓏴 :`
+
 ⌕ ﹔ custom graphics 1-7  ᵒᵘ  discord profile  ،  ꜝ  ๑  rentry╱ur choice of website ⏖
 
 ⟢  ˚  ᛝ tier 1  ˖◝ ⌑  tier 2  𓏵  tier 3   ≀  .  ⟡ ᛝ  ՟

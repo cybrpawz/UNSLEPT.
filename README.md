@@ -9,8 +9,11 @@
 
 ⟢  ˚  ᛝ tier 1  ˖◝ ⌑  tier 2  𓏵  tier 3   ≀  .  ⟡ ᛝ  ՟
 
-➷  𐔌 tier 1  ⋆  1 hour = 4 month  ⟡ 3 hours = 6 months 𓏴 1-2 days = 12 months  ᵕᵕ  [strawpage](https://sunnygummycomms.straw.page)  ʬʬʬ   Ꜣ
-๑ ꒰  tier 2  ᛝ 1-3 hours = 2 months 𐂯 4-7 hours = 3 months ⟡ 1-4 days = 6
+➷  𐔌 tier 1  ⋆  1-3 hour = 6 months  ⟡ 4-7 hours = 12 months 𓏴 1-2 days = 12 months  ᵕᵕ  [strawpage](https://sunnygummycomms.straw.page)  ʬʬʬ   Ꜣ
+
+๑  ꒰  tier 2  ᛝ 1-3 hours = 4 months 𐂯 4-7 hours = 6 months ⟡ 1-2 days = 12 months
+
+ᛝ  ︶ tier 3  𖥻 1-3 hours = 2 months 𓏴 4-7 hours = 4 months ⟡ 1-2 days = 6 months
  
 ♰⠀✦` unfinished
 [f2u.graphics](https://rentry.co/flowarhazard)

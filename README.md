@@ -8,7 +8,7 @@
 
 `ᛝ ⟡ ᐟ payment is in pt supporter ꒱ 𓏴 :`
 
- ⑅ ݁ ˳ 𐂯ྀི  『 times ill be available ; 』  ۶ེ༹༷♡︎ᣟ݂ m**onda**y,we*dnes*d**ay**,t*hur*s**da**y 1*6:3*0 - 2**0:0**0 ⁄⁄͈ tu**es**day,f*riday* 1**4**:2*0-2*0:**0**0. w**eekend**s i*m* *fr*e**e** m**ost**l*y* ᴗ͈ 𓏵𓏵
+ ⑅ ݁ ˳ 𐂯ྀི  『 times ill be available ; 』  ۶ེ༹༷♡︎ᣟ݂ m**onda**y,we*dnes*d**ay**,t*hur*s**da**y 1*6:3*0 - 2**0:0**0 ⁄⁄͈ tu**es**day,f*riday* 1**4**:2*0-2*0:**0**0. w**eekend**s i*m* *fr*e**e** m**ost**l*y* ᴗ͈ 𓏵𓏵 ⟡ GMT 1+ TIMEZONE ꒱ 
 
 ⌕ ﹔ c**usto**m gr**aph**ics 1-7  ᵒᵘ  d*iscor*d p**rofil**e  ،  ꜝ  ๑  **ren**try╱ur c**hoi**ce o*f* w**ebsi**te ⏖
 
